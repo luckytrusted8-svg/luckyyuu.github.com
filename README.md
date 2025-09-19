@@ -1,1 +1,1 @@
-# luckyyuu.github.com
+# luckyyuu.github.io
